@@ -1,1 +1,1 @@
-# dara conflicto Que va mano yo paso ?
+# que asco de git
